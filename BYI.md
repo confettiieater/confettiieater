@@ -1,5 +1,6 @@
 ## BEFORE YOU INTERACT...
 Keep in mind that if you act strangely toward me or others, I may block you regardless of if something is in this list.
+Also, if you're looking to commission me for an art piece, check out my carrd.co!
 
 ### PLEASE INTERACT !!
 > SCP, Full Metal Alchemist (brotherhood or the original), Pressure, and TR:UD fans!
